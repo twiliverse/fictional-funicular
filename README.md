@@ -35,7 +35,7 @@ Here is a curated list of Ye Fei Ran's most prominent works and their on-screen 
 ## 📺 Spotlight: Hit Adaptations from what i saw on socials
 
 ### 💼 My Boss (2024)
-Adapted from *What Comes Around Goes Around*, this hit the drama follows Cheng Yao, an aspiring top lawyer who gets recruited by a leading legal firm. She moves into a new place to be closer to work, only to discover her roommate is her incredibly difficult, prickly new boss, Qian Heng! 
+Adapted from *What Comes Around Goes Around*, this hit the drama follows Cheng Yao li, an aspiring top lawyer who gets recruited by a leading legal firm. She moves into a new place to be closer to work, only to discover her roommate is her incredibly difficult, prickly new boss, Qian Heng! 
 
 ### ⏱️ Legally Romance (2022)
 Adapted from *Don't Fall in Love With the Boss*. It tells the story of Qian Wei, a 28-year-old paralegal stuck working for her former law-school rival, Lu Xun. After a tragic accident puts her in a coma, she travels back to her teenage years in a dream world—where she discovers a completely different, caring side of the boss she thought she hated.
