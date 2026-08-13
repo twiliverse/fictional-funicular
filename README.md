@@ -12,7 +12,7 @@ Welcome to the fan repository for **Ye Fei Ran (叶斐然)**, an acclaimed Chine
 ## 🎭 Author Vibe & Writing Style pov mine 
 
 Ye Fei Ran’s books are characterized by a lighthearted, humorous, and witty writing style. They often feature such vibes:
-*   🏢 **Workplace Shenanigans**: Boss-employee dynamics that turn from hilariously frustrating to swoon-worthy.
+*   🏢 **Workplace Shenanigans**: Boss-employee dynamics that turn from hilariously frustrating to swoon-worthy lol such a goodie.
 *   🕰️ **Time Travel / Second Chances**: Dream worlds or reverting to the past to right the wrongs of youth.
 *   😂 **Banter & Comedy**: Razor-sharp wit, enemies-to-lovers tropes, and undeniable chemistry.
 *   ⚖️ **Professional Contexts**: Lawyers, executives, and intense career-focused individuals navigating love.
