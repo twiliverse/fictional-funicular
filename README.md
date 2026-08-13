@@ -15,7 +15,7 @@ Ye Fei Ran’s books are characterized by a lighthearted, humorous, and witty wr
 *   🏢 **Workplace Shenanigans**: Boss-employee dynamics that turn from hilariously frustrating to swoon-worthy lol such a goodie.
 *   🕰️ **Time Travel / Second Chances**: Dream worlds or reverting to the past to right the wrongs of youth that we all wanted once for sure.
 *   😂 **Banter & Comedy**: Razor-sharp wit, enemies-to-lovers tropes, and undeniable chemistry hehehe.
-*   ⚖️ **Professional Contexts**: Lawyers, executives, and intense career-focused individuals navigating love.
+*   ⚖️ **Professional Contexts**: Lawyers, executives, and intense career-focused individuals navigating love we all are working on ambitions but love is hardest of all .
 
 ---
 
