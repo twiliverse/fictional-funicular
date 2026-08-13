@@ -5,7 +5,7 @@
 ![Genre](https://img.shields.io/badge/Genre-Romance_|_Comedy-8a2be2?style=for-the-badge&logo=bookmeter)
 ![Dramas](https://img.shields.io/badge/Drama_Adaptations-Highly_Acclaimed-ffc107?style=for-the-badge&logo=iqiyi)
 
-Welcome to the fan repository for **Ye Fei Ran (叶斐然)**, an acclaimed Chinese web novelist known for her hilarious, heartwarming, and highly addictive romantic comedy novels. Her unique storytelling, rich in workplace dynamics and second-chance romance, has not only captured the hearts of readers but also sparked top-tier Chinese drama adaptations! 🌟
+Welcome to the fan repository for **Ye Fei Ran (叶斐然)**, an acclaimed Chinese web novelist known for her hilarious, heartwarming, and highly addictive romantic comedy novels. Her unique storytelling, rich in workplace dynamics and second-chance romance, has not only captured the hearts of readers but also sparked top-tier Chinese drama adaptations! aia really like her writings 🌟
 
 ---
 
