@@ -28,7 +28,7 @@ Here is a curated list of Ye Fei Ran's most prominent works and their on-screen 
 | **Don't Fall in Love With the Boss** | 才不要和老板谈恋爱 | Time Travel, Law, Office Romance | *Legally Romance* (Starring Huang Zitao & Song Zu'er) | 2022 |
 | **What Comes Around Goes Around** | 你也有今天 | Romance, Comedy, Cohabitation | *My Boss* (Starring Chen Xingxu & Zhang Ruonan) | 2024 |
 | **White Peach Oolong** | 白桃乌龙 | Romance, Comedy, Marriage, Showbiz | *TBA / Untranslated* | - |
-| **My Lovely (3 Volumes)** | 别闹(上中下) | Romance, Contemporary | *TBA* | - |
+| **My Lovely (3 Volumes)** | 别闹(上中下) | Romance, Contemporary | *TBA* | 2029 |
 
 ---
 
